@@ -9,7 +9,7 @@ This Chrome extension helps automate the process of completing tasks and clickin
 
 ## 🌟 Start Here :
 
-If you're new to Binance, join using this [referral link](https://t.me/Binance_Moonbix_bot/start?startApp=ref_5855703939&startapp=ref_5855703939&utm_medium=web_share_copy) to get started and take advantage of exclusive bonuses.
+If you're new to Binance, join using this [Moonbix Game](https://t.me/Binance_Moonbix_bot/start?startApp=ref_5855703939&startapp=ref_5855703939&utm_medium=web_share_copy) to get started and take advantage of exclusive bonuses.
 
 ---
 
